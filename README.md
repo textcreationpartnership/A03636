@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-❧ A Lesson of the Incarnation of Christe that he toke, his humanite in and of the Blessyd Uirgine: m
+
 1. ¶ A daylye prayer to be sayde before the Lesson.
 
 1. ¶ A Preface.
